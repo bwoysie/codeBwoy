@@ -7,4 +7,5 @@ spent years in foreign lands and are now ready to return home, find permanent lo
 tranportation ..maybe open a smell business and explore the land of their birth.
 It will include links and tips on how to navigate the whole buerocracy of importing 
 your belongings into the Island..tips on finding the right contractor to build that dream
-house or find that perfect gated community.
+house or find that perfect gated community.The format will be like a meet and greet with 
+people leaving tips and greeting and passing on advice and experiences 
